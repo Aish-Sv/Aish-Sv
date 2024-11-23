@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aish-Sv
+- Namaste there, I’m @Aish-Sv
 - 👀 I’m interested in web development 
 - 🌱 I’m currently learning Bsc ca 
 - 💞️ I’m looking to collaborate on ...
