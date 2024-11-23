@@ -1,6 +1,6 @@
 - Namaste there, I’m @Aish-Sv
 - 👀 I’m interested in web development 
-- 🌱 I’m currently learning Bsc ca 
+- 🌱 I’m currently learning Bsc 
 - 💞️ I’m looking to collaborate on ...
 - 😄 Pronouns: She
 - ⚡ Fun fact: Learner, Foodie and codiee
